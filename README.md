@@ -1,6 +1,6 @@
 # Awards 👨‍💻
 
-There are several depictions of my accomplishments throughout the years.
+Hi there👋 There are several depictions of my accomplishments throughout the years.
 
 ## 100% scholarship at FPT University | Nov 2020 - Dec 2024
 <p align="center">
